@@ -21,4 +21,4 @@
 📬 Если хотите обсудить, задать вопрос или пригласить к сотрудничеству — буду рада пообщаться:
 
 - Email: tverskova97@gmail.com  
-- Telegram: [@popkova_nastya](https://t.me/popkova_nastya)
+- Telegram: [@nastya_popkova](https://t.me/nastya_popkova)
